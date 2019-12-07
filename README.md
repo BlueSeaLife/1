@@ -1,21 +1,18 @@
 # 小可爱最新下载地址（2019年11月15日更新）
-### [fmsz.xyz](http://fmsz.xyz)
-### [6a49.xyz](http://6a49.xyz)
+### [zisi.xyz](http://zisi.xyz)
+### [5jvb.xyz](http://5jvb.xyz)
 ### 主播版下载地址 [037i.xyz](http://037i.xyz)<br> （观众下载无法使用）
 备用观众版下载地址如下<br>
- 
-0bhg.xyz<br>
-9fcv.xyz<br>
-zdpz.xyz<br>
-i68e.xyz<br>
-g1xu.xyz<br>
-6j6l.xyz<br>
-v0vv.xyz<br>
-lo4n.xyz<br>
-shzy.xyz<br>
-3zzs.xyz<br>
-5wqi.xyz<br>
-btqs.xyz<br>
+mbua.xyz<br>
+apqj.xyz<br>
+mbro.xyz<br>
+3bok.xyz<br>
+pf7c.xyz<br>
+5hny.xyz<br>
+s3aj.xyz<br>
+z8di.xyz<br>
+sprz.xyz<br>
+td8j.xyz<br>
 
 
 备用主播版下载地址如下<br>
@@ -34,8 +31,7 @@ q0up.xyz<br>
 本页专人更新，随时获得直播最新下载地址！<br>
 防止因为老域名屏蔽无法下载最新平台app，方便大家回家！<br>
 请立刻收藏保存本页！！<br>
-最新的平台回家页面  最新的平台回家页面https://github.com/1jie/1       <br>
-telegram 聊天工具交流更安全，下载安装使用请看tg使用攻略：https://github.com/1jie/1/blob/master/TG%E6%95%99%E7%A8%8B.md
+
 
 
 # 赌场说明
